@@ -1,5 +1,5 @@
 </p>
-<a href="https://github.com/karthikeyan1845"><img src="https://readme-typing-svg.herokuapp.com/?lines=✿ʜᴇʟʟᴏ%20ɪ%20ᴀᴍ✿%20;♡‿♡ᴋᴀʀᴛʜɪ%20+ᴋᴇʏᴀɴ♡‿♡;1ʏᴇᴀʀ%20of%20ᴄᴏᴅɪɴɢ%20ᴇxᴘᴇʀɪᴇɴᴄᴇ;Always%20learning%20new%20technologies;☠️ɴᴇᴠᴇʀ%20ᴛʀᴜꜱᴛ%20ᴀ%20ᴄᴏᴍᴘᴜᴛᴇʀ%20;ʏᴏᴜ%20ᴄᴀɴ’ᴛ%20ᴛʜʀᴏᴡ%20ᴏᴜᴛ%20ᴀ%20ᴡɪɴᴅᴏᴡ☠️&font=Pacifico&center=true&width=1250&height500&color=000888&vCenter=true&size=4\0%22"></a> </p>
+<a href="https://github.com/karthikeyan1845"><img src="https://readme-typing-svg.herokuapp.com/?lines=✿ʜᴇʟʟᴏ%20ɪ%20ᴀᴍ✿%20;♡‿♡ᴋᴀʀᴛʜɪ%20+ᴋᴇʏᴀɴ♡‿♡;1ʏᴇᴀʀ%20of%20ᴄᴏᴅɪɴɢ%20ᴇxᴘᴇʀɪᴇɴᴄᴇ;Always%20learning%20new%20technologies;☠️ɴᴇᴠᴇʀ%20ᴛʀᴜsᴛ%20ᴀ%20ᴄᴏᴍᴘᴜᴛᴇʀ%20;ʏᴏᴜ%20ᴄᴀɴ’ᴛ%20ᴛʜʀᴏᴡ%20ᴏᴜᴛ%20ᴀ%20ᴡɪɴᴅᴏᴡ☠️&font=Pacifico&center=true&width=1250&height500&color=000888&vCenter=true&size=4\0%22"></a> </p>
 
 
 
